@@ -43,3 +43,7 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 - Reduce to simmer 
 - Add in the sauce or crushed tomatoes.
 - Leave for around 20 minutes or so, stir every so often.
+
+### Multi-tasking
+
+- While sausages are browning, cut the veggies. Saves time.
