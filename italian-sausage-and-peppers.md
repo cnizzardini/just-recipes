@@ -12,12 +12,15 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 - Some canned crushed tomatoes or you can just throw in some cheap spaghetti sauce, around a 1/2 cup or so
 - Salt, pepper, and any other seasonings that you like. Sprinkle them in.
 
+## Recommended
+
+- Some cheese: Grated parm is my go to, but even romano is fine. If going rice, I haven't tried cheese. 
+- Pasta, rice, or italian rolls.
+
 ## Optional
 
-- Some cheese: Grated parm is my go to, but even romano is fine. If going rice, I haven't tried cheese.
 - Some oregano, you probably won't notice it, but throw in a pinch if you got it.
 - A splash of red wine.
-- Pasta, rice, or italian rolls.
 
 ## Items
 
