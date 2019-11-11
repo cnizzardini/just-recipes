@@ -43,3 +43,4 @@ flavor to your grains. If using rolls, you know what to do.
 
 - Reduce to simmer 
 - Add in the sauce or crushed tomatoes.
+- Leave for around 20 minutes or so, stir every so often.
