@@ -47,3 +47,4 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 ### Multi-tasking
 
 - While sausages are browning, cut the veggies. Saves time.
+- For pasta/rice, begin boiling water around when sausages are done.
