@@ -17,6 +17,7 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 - Some cheese: Grated parm is my go to, but even romano is fine. If going rice, I haven't tried cheese.
 - Some oregano, you probably won't notice it, but throw in a pinch if you got it.
 - A splash of red wine.
+- Pasta, rice, or italian rolls.
 
 ## Items
 
