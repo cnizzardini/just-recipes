@@ -14,6 +14,7 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 
 ## Optional
 
+- Some cheese: Grated parm is my go to, but even romano is fine. If going rice, I haven't tried cheese.
 - Some oregano, you probably won't notice it, but throw in a pinch if you got it.
 - A splash of red wine.
 
@@ -43,6 +44,7 @@ Just the fucking receipe. If you want a grain option cook some white rice, angel
 - Reduce to simmer 
 - Add in the sauce or crushed tomatoes.
 - Leave for around 20 minutes or so, stir every so often.
+- Top dish with cheese on plate if using pasta, or add to roll.
 
 ### Multi-tasking
 
