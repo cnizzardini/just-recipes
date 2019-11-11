@@ -22,6 +22,7 @@ flavor to your grains. If using rolls, you know what to do.
 ## Items
 
 - Large pan with lid
+- Optional: Pot for cooking rice or pasta
 
 ## Cooking
 
