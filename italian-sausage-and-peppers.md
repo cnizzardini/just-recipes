@@ -1,7 +1,5 @@
 # Italian Sausage and Peppers
 
-Just the fucking receipe. If you want a grain option cook some white rice, angel hair pasta (for spaghetti I like angel hair because it cooks the fastest), or use some italian rolls. I prefer angel hair pasta and sometimes rice, rarely rolls. Just mix in the end product with your pasta or rice to add flavor to your grains. If using rolls, you know what to do.
-
 ## Ingredients
 
 - A pack of sausages
